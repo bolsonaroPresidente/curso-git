@@ -8,4 +8,7 @@ comandos do git
 
 nova linha no arquivo
 
-inserindo nova alteraçao
+inserindo nova alteraçafldskfdfkçdkfkdfkdso
+
+
+MUDANÇAS DO MIXED
